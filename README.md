@@ -2,7 +2,7 @@
 
 
 ## 🚀 About Me
-I'm a full stack developer and a Hark working Individual.
+I'm a self-taught full stack developer and a Hard working Individual.
 
 
 ## Other Common Github Profile Sections
