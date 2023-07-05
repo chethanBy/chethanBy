@@ -1,4 +1,4 @@
-# Hi, I'm Chethan BY ! 👋
+# 👋 Hi, I'm Chethan
 
 
 ## 🚀 About Me
